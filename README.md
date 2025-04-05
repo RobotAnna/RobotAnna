@@ -1,4 +1,4 @@
-Freelance data nerd. Technologist. Futurist. Also at: robotanna.com
+Data nerd. Technologist. Futurist. Also at: robotanna.com
 
 <!--- 👋 Hi, I’m @RobotAnna
 - 👀 I’m interested in ...
